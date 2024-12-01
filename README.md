@@ -1,2 +1,0 @@
-# budhaContinental-
-ContinentalBudha
